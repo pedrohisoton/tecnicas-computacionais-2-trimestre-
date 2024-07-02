@@ -1,0 +1,1 @@
+# tecnicas-computacionais-2-trimestre-
